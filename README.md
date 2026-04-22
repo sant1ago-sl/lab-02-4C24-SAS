@@ -2,7 +2,7 @@
 
 
 
-Receta básica de causa limeña rellena de pollo.
+Receta básica de causa limeña rellena de pollo con el amor de casa
 
 
 
